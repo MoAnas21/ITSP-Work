@@ -1,3 +1,3 @@
 # ITSP-Work
 # AD Astra
-# Aathmanirbhar Bharath
+# Poda thendi
